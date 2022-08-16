@@ -1,4 +1,4 @@
-Hi! I'm Mariska <br />
+Hi! I'm Mariska (She/Her) <br />
 <br />
 ~🛠️ Maker <br />
 ~🖱️ 3D Printing Enthusiast <br />
